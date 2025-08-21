@@ -1,3 +1,2 @@
-Final year Software Engineering student. Wide range of skills in asset management.
-Quantitative Analyst - Consultant (Part-time).
-Fascinated by investment portfolios.
+Quant Analyst at an Investment Firm (part-time).
+Final year Software Engineering student(full-time).
